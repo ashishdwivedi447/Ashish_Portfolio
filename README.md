@@ -1,2 +1,2 @@
-# RajaYada00.github.io
+# Rishi Ranjan.github.io
 Welcome to my portfolio
